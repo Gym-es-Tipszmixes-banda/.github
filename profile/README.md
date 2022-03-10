@@ -2,7 +2,7 @@
 
 - ⚔️ Ricsi az anime protagonist
 - 🕶️ Domo a stylist
-- 🥴 Csáki az idióta
+- 🥴 Csáki a legrégebbi developR
 - 💸 Kyky az üzletember
 
 ## Kedvenc eszközök és nyelvek
